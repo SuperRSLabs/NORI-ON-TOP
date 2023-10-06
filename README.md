@@ -1,1 +1,1 @@
-# NORI ON TOP
+# comet got descontinued
